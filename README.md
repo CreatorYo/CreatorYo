@@ -17,5 +17,6 @@
 ⚡ **Fun Fact:** 
 I'm the founder of **CreatorYo Creations / Games**! 🎮 If you didn't know, now you do!
 
-🔗 **My Socials:**
+🔗 **My Socials / Other Links:**
 - [X / Twitter](https://x.com/CreatorYo)
+- [My Portfolio ](https://creatoryo-portfolio.vercel.app/) (still making changes to it to improve it overtime).
