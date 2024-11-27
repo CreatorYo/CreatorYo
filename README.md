@@ -15,7 +15,7 @@
 😄 **Pronouns:** He/Him
 
 ⚡ **Fun Fact:** 
-I'm the founder of **CreatorYo Creations / Games**! 🎮 If you didn't know, now you do!
+I'm the founder of **CreatorYo Games / Creations**!  If you didn't know, now you do!
 
 🔗 **My Socials / Other Links:**
 - [X / Twitter](https://x.com/CreatorYo)
