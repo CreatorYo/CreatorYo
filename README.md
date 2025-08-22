@@ -19,4 +19,4 @@ I'm the founder of **CreatorYo Games / Creations**!  If you didn't know, now you
 
 🔗 **My Socials / Other Links:**
 - [X / Twitter](https://x.com/CreatorYo)
-- [My Portfolio ](https://zak-portfolio-eta.vercel.app) (still making changes to it to improve it overtime).
+- [My Portfolio ](https://zak-portfolio-eta.vercel.app)
